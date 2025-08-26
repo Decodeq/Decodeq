@@ -1,5 +1,4 @@
-OG SKHITTERS LOVER SINCE 1 A.D.
-Discord:Mr Campbell#1583
+Random A level programs mans now on that level of linkedin warrior
 
 
 <!---
